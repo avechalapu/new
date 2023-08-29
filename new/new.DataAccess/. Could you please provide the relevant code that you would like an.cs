@@ -1,0 +1,1 @@
+﻿I'm sorry, but the code you provided does not appear to be related to generating an interface. Could you please provide the relevant code that you would like an interface generated for?
